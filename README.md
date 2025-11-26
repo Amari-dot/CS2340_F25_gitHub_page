@@ -26,3 +26,6 @@ Amari Owens: This was a truly enriching experience that taught me about the real
 * DAVIS ONDIEKI
 * Ifeanyi Ezegbo
 * Subomi Ajayi
+* Gabriel Menghisteab
+* Amari Owens
+* Noah Buchanan
